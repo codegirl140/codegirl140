@@ -1,7 +1,5 @@
 # You can read my Bio for more about me
 
-I'm waiting for @epicgames to fix UE 5, it keeps crashing on startup. For now I use python and ocasionaly try noodling on UE 4
-
 I'm not currently working on anything public, but I do have some projects I'm working on. I'll releace them as soon as I feel ready
 
 # Some things to keep in mind
