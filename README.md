@@ -10,7 +10,7 @@ This is literaly my first markdown document ever, don't expect good formating
 
 - I'm not a good coder
 
-I code because I enjoy it, but I'm no Richard Stallman, expect lots of confusion from me as I try to wrap my head around code
+I code because I enjoy it, but I'm no Linus Torvalds, expect lots of confusion from me as I try to wrap my head around code
 
 - I'm Buisy
 
