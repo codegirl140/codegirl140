@@ -1,6 +1,6 @@
 # You can read my Bio for more about me
 
-I'm not currently working on anything public, but I do have some projects I'm working on. I'll releace them as soon as I feel ready
+I'm a nerdy demigirl who likes to keep to themself, I don't plan on publishing anything right now but I may in the future
 
 # Some things to keep in mind
 
