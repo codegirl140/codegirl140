@@ -1,5 +1,3 @@
-# You can read my Bio for more about me
-
 I'm a nerdy demigirl who likes to keep to themself, I don't plan on publishing anything right now but I may in the future. Ignore my username, it's from before my egg cracked and I'm afraid of breaking stuff by changeing it.
 
 # Some things to keep in mind
