@@ -1,4 +1,4 @@
-I'm a nerdy demigirl who likes to keep to themself, I don't plan on publishing anything right now but I may in the future. Ignore my username, it's from before my egg cracked and I'm afraid of breaking stuff by changeing it.
+I'm a nerdy demigirl who likes to keep to themself, I don't plan on publishing anything right now but I may in the future.
 
 # Some things to keep in mind
 
